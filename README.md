@@ -8,7 +8,7 @@
 📢 How to reach me: dharmendramahilange2020@gmail.com
 
 📫 Let's connect:  
-- 💼 LinkedIn: (https://www.linkedin.com/feed/)
+- 💼 LinkedIn: https://www.linkedin.com/feed/
 
 
  
